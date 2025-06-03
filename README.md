@@ -1,1 +1,1 @@
-# foxie.cool
+# https://foxie.cool
