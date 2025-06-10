@@ -1,1 +1,1 @@
-# https://foxie.cool
+# https://bloomup.io
